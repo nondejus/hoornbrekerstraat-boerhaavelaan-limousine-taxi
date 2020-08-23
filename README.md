@@ -1,2 +1,4 @@
 # hoornbrekerstraat-boerhaavelaan-limousine-taxi
-nico' s stink sokken
+
+nico's professionele voorbeeld:
+schoenen uittrekken in de taxi met zware stink sokken
